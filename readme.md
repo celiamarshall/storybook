@@ -1,1 +1,1 @@
-Once there was an elderly lady named Hermione Granger and she was very lonely.  Her friend Ron Weasely worked at the humane society.
+Once there was an elderly lady named Hermione Granger and she was very lonely.  Her friend Ron Weasely worked at the humane society. She often visited but never took home any new friends.  Then one day she brought in a tiny bright red dog sweater embroidered with "invisibility cloak" in silver thread.  She intended to donate it to a tiny dog named Harry Potter who often shivered in the corner.  
